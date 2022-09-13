@@ -1,0 +1,1 @@
+# image-light-teal-color
